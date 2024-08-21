@@ -1,16 +1,15 @@
-## Hi there 👋
+## Boa svindas ao meu perfil 🖤
 
-<!--
-**Aleatoriamente500/Aleatoriamente500** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome È NÂO se preocupe com meu nome
 
-Here are some ideas to get you started:
+Eu estou estudando alura🙉
+estou me desenvolvendo no JavaScript♟️
+Ultilizo esse espaço para ploriferar meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Voçe entra em contato comigo 📫
+
+00001079850806sp@al.educacao.sp.gov.br
+Não entre em contato se possivel
+![](https://media.tenor.com/dur8_lWhH2cAAAAM/crazy-cat-dancing-crazy-cat.gif)
+
+Eu sou ADRIEL
